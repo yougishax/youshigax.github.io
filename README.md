@@ -1,1 +1,0 @@
-# youshigax.github.io
